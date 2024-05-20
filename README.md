@@ -1,16 +1,20 @@
-### Hi there 👋
+## *** ~୭ HEYOO! 📖 ***
 
-<!--
-**bvrningletters/bvrningletters** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[✦](https://www.youtube.com/watch?v=bMAoOGnw9qQ) *'' .. FORGIVENESS . CAN YOU IMAGINE . . . ? ''*
 
-Here are some ideas to get you started:
+> NIGHTMARE BLUNT ROTATION SYS .. NAME/PRONOUN(S) BASED OFF OF FRONT (FEEL FREE TO ASK!)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> STATING THIS RIGHT NOW -- ***ABSOLUTELY NO COSPLAYERS/DOUBLES!*** HIDDEN ON SIGHT AS IT MAKES US UNCOMFY, SORRY.
+
+> WE ALSO HAVE A MILD TYPING QUIRK WHERE WE PURPOSEFULLY MISSPELL WORDS. FEEL FREE TO ASK FOR A TRANSLATION ASWELL.
+
+---
+## ***~୭ PONYTOWN INFO! 📄 ***
+> WE DISLIKE IT WHEN PEOPLE BOOP US REPEATEDLY, SIT INFRONT OF US FOR NO REASON WITHOUT SAYING ANYTHING AND SENDING RANDOM FRIEND REQUESTS. WE KNOW YOU MIGHT THINK WE'RE COOL, LIKE ''WOAH!!! MY FAVOURITE CHARACTER FROM (X) SERIES/GAME!!'', BUT REMEMBER: WE ARENT AN AI CHATBOT. WE ARE *PEOPLE* ASWELL. WE GET OVERWHELMED AND UNCOMFORTABLE EASILY, SO PLEASE APPROACH/MSG WITH KINDNESS AND CALMNESS. IF WE DECIDE THAT WE CAN SPEAK TO YOU FREELY WITHOUT ANXIETY, WE WILL ACT MORE OPEN AND PROBABLY CHAOTIC.
+
+> SITTING WITH US AND ATLEAST SAYING SOMETHING IS OK. BUT WITHOUT EXPLANATION OR REASON, HIDE ON SIGHT OR WE WILL JUST IGNORE YOU.
+
+---
+## ***~୭ THANKS FOR TAKING UR TIME TO READ!!! ✉️ ***
+
+![I HEART LIN MANUEL](https://cdn.discordapp.com/attachments/1096897171888021578/1241960348387639357/IMG_0287.jpg?ex=664c1935&is=664ac7b5&hm=7feccf942896a90fb3a017a1fe5c95bac375f5123fa86149f9683a2d52b6a828&)
