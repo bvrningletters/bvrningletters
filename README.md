@@ -1,6 +1,6 @@
 ## *** ~୭ HEYOO! 📖 ***
 
-[✦](https://www.youtube.com/watch?v=bMAoOGnw9qQ) *'' .. FORGIVENESS . CAN YOU IMAGINE . . . ? ''*
+[𝜗𝜚](https://www.youtube.com/watch?v=bMAoOGnw9qQ) *'' .. FORGIVENESS . CAN YOU IMAGINE . . . ? ''*
 
 > NIGHTMARE BLUNT ROTATION SYS .. NAME/PRONOUN(S) BASED OFF OF FRONT (FEEL FREE TO ASK!)
 
@@ -21,7 +21,7 @@
 > (HISTORICAL FACTIVES ARE REFERRING TO MUSICAL COUNTERPARTS FOR THE MOST PART) 
 
 ---
-## ***~୭ THANKS FOR TAKING UR TIME TO READ!!! ✉️ ***
+## ***~୭ THANKS FOR TAKING UR TIME TO READ.ᐟ.ᐟ ✉️ ***
 
 
 ![I HEART LIN MANUEL](https://i.pinimg.com/736x/f4/06/99/f406995020cba18d2c3e69a153d616ee.jpg) 
