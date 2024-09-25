@@ -23,14 +23,14 @@ $\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$
 
 $\text{\color{#C5E7FF}{ ᯓ nightmare blunt rotation sys ᡣ𐭩 }}$ 
 
-$\text{\color{#C5E7FF}{ദ്ദി(˵ •̀ ᴗ - ˵ ) name/pronouns based off of front - feel free to ask me !}}$ 
+$\text{\color{#ADDDFC}{ദ്ദി(˵ •̀ ᴗ - ˵ )}}$ $\text{\color{#C5E7FF}{name/pronouns based off of front - feel free to ask me !}}$ 
 
 $\text{\color{#C5E7FF}{please dni if you are a roleplayer or other sys who has the same alters;}}$
-$\text{\color{#C5E7FF}{there is nothing wrong with it, though it makes us uncomfy sorry!! ( ˶°ㅁ°)}}$ 
+$\text{\color{#C5E7FF}{there is nothing wrong with it, though it makes us uncomfy sorry!!}}$ $\text{\color{#ADDDFC}{( ˶°ㅁ°)}}$
 
-$\text{\color{#C5E7FF}{(≧ヮ≦) mild typing quirk to misspell words on purpose - ask for a translation if needed!}}$ 
+$\text{\color{#ADDDFC}{(≧ヮ≦)}}$ $\text{\color{#C5E7FF}{mild typing quirk to misspell words on purpose - ask for a translation if needed!}}$ 
 
-$\text{\color{#C5E7FF}{love ya! ⸜(｡˃ ᵕ ˂ )⸝♡}}$ 
+$\text{\color{#C5E7FF}{love ya!}}$ $\text{\color{#ADDDFC}{⸜(｡˃ ᵕ ˂ )⸝♡}}$ 
 
 ![](https://github.com/user-attachments/assets/b734d60a-c8ee-4b72-b531-adb65e801a6e)
 
