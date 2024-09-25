@@ -2,11 +2,14 @@
 
   ![](https://wilardo.crd.co/assets/images/gallery21/5edb560e.gif?v=d19c95ca)
   
-  $\text{\color{#C5E7FF}{ " look into your eyes and the sky's the limit! " }}$
+  ![](https://github.com/user-attachments/assets/dc05b065-0b11-4998-b841-ddfaa7b16ba8)
+$\text{\color{#C5E7FF}{ " look into your eyes and the sky's the limit! " }}$ ![](https://github.com/user-attachments/assets/eb8be55b-0dd9-44b6-bdf5-43c424f649d1)
+
   
-  ![](https://cdn.discordapp.com/attachments/1096897171888021578/1288316267895193683/IMG_4580.png?ex=66f4bd86&is=66f36c06&hm=31d1ed2fd714eabae19528503f22e31b790cfde27c9e9432aaca7583392171c7&)
+  ![](https://s4.ezgif.com/tmp/ezgif-4-8fba5b0406.png)
   
- $\text{\color{#C5E7FF}{ kendyl / eliza ! }}$
+ ![](https://github.com/user-attachments/assets/787c9b77-3770-4360-a604-24f87c2fc6a0)
+$\text{\color{#C5E7FF}{ kendyl / eliza ❀ .ᐟ}}$
 
  $\text{\color{#C5E7FF}{ androsexual / agenderflux }}$ $\text{\color{#D7EFFF}{ 𝜗𝜚 }}$  $\text{\color{#C5E7FF}{ they/fae }}$
 
@@ -14,8 +17,27 @@
 
 $\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$ $\text{\color{#D7EFFF}{ ☆ }}$ $\text{\color{#ADDDFC}{ tiktok: }}$ $\text{\color{#D7EFFF}{ bvrningletters }}$
 
+
 ![](https://i.ibb.co/VqmHjBr/IMG-4557.png)
 
-![](https://cdn.discordapp.com/attachments/1096897171888021578/1288315810489569312/Untitled544_20240924183142.png?ex=66f4bd18&is=66f36b98&hm=46c90a448dbd11a1ebbba9833862a9550ec43643f96c5bd4893359b8c72d7876&)
+
+$\text{\color{#C5E7FF}{ ᯓ nightmare blunt rotation sys ᡣ𐭩 }}$ 
+
+$\text{\color{#C5E7FF}{ദ്ദി(˵ •̀ ᴗ - ˵ ) name/pronouns based off of front - feel free to ask me !}}$ 
+
+$\text{\color{#C5E7FF}{please dni if you are a roleplayer or other sys who has the same alters;}}$
+$\text{\color{#C5E7FF}{there is nothing wrong with it, though it makes us uncomfy sorry!! ( ˶°ㅁ°)}}$ 
+
+$\text{\color{#C5E7FF}{(≧ヮ≦) mild typing quirk to misspell words on purpose - ask for a translation if needed!}}$ 
+
+$\text{\color{#C5E7FF}{love ya! ⸜(｡˃ ᵕ ˂ )⸝♡}}$ 
+
+![](https://github.com/user-attachments/assets/b734d60a-c8ee-4b72-b531-adb65e801a6e)
+
+
+
+
+![](https://github.com/user-attachments/assets/31764beb-a891-4a07-8765-6a872e6adc54)
+
  
 </div>
