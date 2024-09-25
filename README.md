@@ -1,28 +1,21 @@
-## ~୭ HII (˶ • _ • ˶).ᐟ.ᐟ
+<div align="center">
 
-[𝜗𝜚](https://www.youtube.com/watch?v=bMAoOGnw9qQ) *'' .. FORGIVENESS . CAN YOU IMAGINE . . . ? ''*
+  [![](https://wilardo.crd.co/assets/images/gallery21/5edb560e.gif?v=d19c95ca)]
+  
+  $\text{\color{#C5E7FF}{ " look into your eyes and the sky's the limit! " }}$
+  
+  ![](https://cdn.discordapp.com/attachments/1096897171888021578/1288316267895193683/IMG_4580.png?ex=66f4bd86&is=66f36c06&hm=31d1ed2fd714eabae19528503f22e31b790cfde27c9e9432aaca7583392171c7&)
+  
+ $\text{\color{#C5E7FF}{ kendyl / eliza ! }}$
 
-> NIGHTMARE BLUNT ROTATION SYS .. NAME/PRONOUN(S) BASED OFF OF FRONT (FEEL FREE TO ASK!)
+ $\text{\color{#C5E7FF}{ androsexual / agenderflux }}$ $\text{\color{#D7EFFF}{ 𝜗𝜚 }}$  $\text{\color{#C5E7FF}{ they/fae }}$
 
-> STATING THIS RIGHT NOW -- ***PLEASE DO NOT INTERACT IF YOU ARE A ROLEPLAYER/A SYS WHO HAS AN ALTER OF A CHARACTER WE ALSO HAPPEN TO HAVE AS AN ALTER!*** THERE IS NO PROBLEM WITH IT, THOUGH I WOULD PREFER TO NOT INTERACT AS IT MAKES US A BIT UNCOMFY, SORRY.
+ $\text{\color{#ADDDFC}{hamilton}}$ $\text{\color{#D7EFFF}{✿}}$  $\text{\color{#ADDDFC}{six}}$ $\text{\color{#D7EFFF}{ᡣ𐭩}}$  $\text{\color{#ADDDFC}{npmd}}$
 
-> WE ALSO HAVE A MILD TYPING QUIRK WHERE WE PURPOSEFULLY MISSPELL WORDS. FEEL FREE TO ASK FOR A TRANSLATION IF NEEDED.
+$\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$ $\text{\color{#D7EFFF}{ ☆ }}$ $\text{\color{#ADDDFC}{ tiktok: }}$ $\text{\color{#D7EFFF}{ bvrningletters }}$
 
-> ALTER COUNT UNKNOWN BECAUSE KEEPING COUNT IS A STRUGGLE BUT REOCCURING FRONTING ALTERS CONSIST OF:
+![](https://i.ibb.co/VqmHjBr/IMG-4557.png)
 
-> • ELIZABETH SCHUYLER HAMILTON
-> • JOHN LAURENS
-> • MARIA LEWIS REYNOLDS
-> • MARGARITA PEGGY SCHUYLER
-> • KATHERINE HOWARD
-> • ANNE BOLEYN
-> • VERONICA SAWYER
-> • JANE DOE
-
-> (HISTORICAL FACTIVES ARE REFERRING TO MUSICAL COUNTERPARTS FOR THE MOST PART) 
-
----
-## ***~୭ THANKS FOR TAKING UR TIME TO READ.ᐟ.ᐟ ***
-
-
-![I HEART LIN MANUEL](https://i.pinimg.com/736x/f4/06/99/f406995020cba18d2c3e69a153d616ee.jpg) 
+![](https://cdn.discordapp.com/attachments/1096897171888021578/1288315810489569312/Untitled544_20240924183142.png?ex=66f4bd18&is=66f36b98&hm=46c90a448dbd11a1ebbba9833862a9550ec43643f96c5bd4893359b8c72d7876&)
+ 
+</div>
