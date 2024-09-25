@@ -1,6 +1,6 @@
 <div align="center">
 
-  [![](https://wilardo.crd.co/assets/images/gallery21/5edb560e.gif?v=d19c95ca)]
+  ![](https://wilardo.crd.co/assets/images/gallery21/5edb560e.gif?v=d19c95ca)
   
   $\text{\color{#C5E7FF}{ " look into your eyes and the sky's the limit! " }}$
   
