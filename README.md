@@ -26,9 +26,11 @@ $\text{\color{#C5E7FF}{ ᯓ nightmare blunt rotation sys ᡣ𐭩 }}$
 $\text{\color{#ADDDFC}{ദ്ദി(˵ •̀ ᴗ - ˵ )}}$ $\text{\color{#C5E7FF}{name/pronouns based off of front - feel free to ask me !}}$ 
 
 $\text{\color{#C5E7FF}{please dni if you are a roleplayer or other sys who has the same alters;}}$
-$\text{\color{#C5E7FF}{there is nothing wrong with it, though it makes us uncomfy sorry!!}}$ $\text{\color{#ADDDFC}{( ˶°ㅁ°)}}$
+$\text{\color{#C5E7FF}{though there is nothing wrong with it,}}$
+$\text{\color{#C5E7FF}{it makes us uncomfy sorry!!}}$ $\text{\color{#ADDDFC}{( ˶°ㅁ°)}}$
 
-$\text{\color{#ADDDFC}{(≧ヮ≦)}}$ $\text{\color{#C5E7FF}{mild typing quirk to misspell words on purpose - ask for a translation if needed!}}$ 
+$\text{\color{#ADDDFC}{(≧ヮ≦)}}$ $\text{\color{#C5E7FF}{mild typing quirk to misspell words on purpose,}}$
+$\text{\color{#C5E7FF}{ask for a translation if needed!}}$ 
 
 $\text{\color{#C5E7FF}{love ya!}}$ $\text{\color{#ADDDFC}{⸜(｡˃ ᵕ ˂ )⸝♡}}$ 
 
