@@ -6,7 +6,7 @@
 $\text{\color{#C5E7FF}{ " look into your eyes and the sky's the limit! " }}$ ![](https://github.com/user-attachments/assets/eb8be55b-0dd9-44b6-bdf5-43c424f649d1)
 
   
-  ![](https://s4.ezgif.com/tmp/ezgif-4-8fba5b0406.png)
+  ![](https://i.ibb.co/rxtbDkD/IMG-4610.png)
   
  ![](https://github.com/user-attachments/assets/787c9b77-3770-4360-a604-24f87c2fc6a0)
 $\text{\color{#C5E7FF}{ eliza / kendyl ❀ .ᐟ}}$
