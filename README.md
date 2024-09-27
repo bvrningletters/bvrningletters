@@ -23,6 +23,8 @@ $\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$
 
 $\text{\color{#C5E7FF}{ ᯓ nightmare blunt rotation sys ᡣ𐭩 }}$ 
 
+$\text{\color{#C5E7FF}{⭑ host: kendyl /co-host: eliza .ᐟ}}$ 
+
 $\text{\color{#ADDDFC}{ദ്ദി(˵ •̀ ᴗ - ˵ )}}$ $\text{\color{#C5E7FF}{name/pronouns based off of front - feel free to ask me !}}$ 
 
 $\text{\color{#C5E7FF}{please dni if you are a roleplayer or other sys who has the same alters;}}$
