@@ -17,8 +17,11 @@ $\text{\color{#C5E7FF}{ eliza / kendyl ❀ .ᐟ}}$
 
 $\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$ $\text{\color{#D7EFFF}{ ☆ }}$ $\text{\color{#ADDDFC}{ tiktok: }}$ $\text{\color{#D7EFFF}{ bvrningletters }}$
 
+![](https://github.com/user-attachments/assets/0578f54d-21b0-49e5-a8db-eb1423d8bf81)
 
 ![](https://i.ibb.co/VqmHjBr/IMG-4557.png)
+
+![](https://github.com/user-attachments/assets/db516035-3ba4-4cc4-9228-e092cd673434)
 
 
 $\text{\color{#C5E7FF}{ ᯓ nightmare blunt rotation sys ᡣ𐭩 }}$ 
