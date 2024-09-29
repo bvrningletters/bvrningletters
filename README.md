@@ -42,9 +42,12 @@ $\text{\color{#C5E7FF}{love ya!}}$ $\text{\color{#ADDDFC}{⸜(｡˃ ᵕ ˂ )⸝�
 ![](https://github.com/user-attachments/assets/b734d60a-c8ee-4b72-b531-adb65e801a6e)
 
 
-
-
 ![](https://github.com/user-attachments/assets/31764beb-a891-4a07-8765-6a872e6adc54)
+
+
+![](https://github.com/user-attachments/assets/d2316aea-c39e-49fc-afb9-fbf63049a3fc)
+
+
 
  
 </div>
