@@ -29,7 +29,7 @@ $\text{\color{#ADDDFC}{ദ്ദി(˵ •̀ ᴗ - ˵ )}}$ $\text{\color{#C5E7FF
 
 $\text{\color{#C5E7FF}{please dni if you are a roleplayer or other sys who has the same alters;}}$
 $\text{\color{#C5E7FF}{though there is nothing wrong with it,}}$
-$\text{\color{#C5E7FF}{it makes us uncomfy sorry!!}}$ $\text{\color{#ADDDFC}{( ˶°ㅁ°)}}$
+$\text{\color{#C5E7FF}{it just makes us uncomfy sorry!!}}$ $\text{\color{#ADDDFC}{( ˶°ㅁ°)}}$
 
 $\text{\color{#ADDDFC}{(≧ヮ≦)}}$ $\text{\color{#C5E7FF}{mild typing quirk to misspell words on purpose,}}$
 $\text{\color{#C5E7FF}{ask for a translation if needed!}}$ 
