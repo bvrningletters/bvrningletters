@@ -13,13 +13,13 @@ $\text{\color{#C5E7FF}{ " look into your eyes and the sky's the limit! " }}$ ![]
  ![](https://github.com/user-attachments/assets/787c9b77-3770-4360-a604-24f87c2fc6a0)
 $\text{\color{#C5E7FF}{ eliza / kendyl ❀ .ᐟ}}$
 
- $\text{\color{#C5E7FF}{ androsexual / agenderflux }}$ $\text{\color{#D7EFFF}{ 𝜗𝜚 }}$  ![](https://github.com/user-attachments/assets/c3832d70-905a-473e-8878-ce8184038359)
+ $\text{\color{#C5E7FF}{ systemfluid }}$ $\text{\color{#D7EFFF}{ 𝜗𝜚 }}$  ![](https://github.com/user-attachments/assets/c3832d70-905a-473e-8878-ce8184038359)
 
 ![](https://github.com/user-attachments/assets/1d3e3dd4-f883-4dc0-a186-25fd87e95e50)
 $\text{\color{#C5E7FF}{ they/fae }}$ ![](https://github.com/user-attachments/assets/7d70d31e-c3d6-4f41-9305-5abd05a718d1)
 
 
- $\text{\color{#ADDDFC}{hamilton}}$ $\text{\color{#D7EFFF}{✿}}$  $\text{\color{#ADDDFC}{six}}$ $\text{\color{#D7EFFF}{ᡣ𐭩}}$  $\text{\color{#ADDDFC}{npmd}}$
+ $\text{\color{#ADDDFC}{hamilton}}$ $\text{\color{#D7EFFF}{✿}}$  $\text{\color{#ADDDFC}{six}}$ $\text{\color{#D7EFFF}{❀}}$  $\text{\color{#ADDDFC}{epic}}$ $\text{\color{#D7EFFF}{✿}}$ $\text{\color{#ADDDFC}{npmd}}$
 
 ![](https://github.com/user-attachments/assets/493568dd-f379-40d4-957d-4d58ee87c3c2)
 $\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$ $\text{\color{#D7EFFF}{ ☆ }}$ $\text{\color{#ADDDFC}{ tiktok: }}$ $\text{\color{#D7EFFF}{ bvrningletters }}$![](https://github.com/user-attachments/assets/3763eba6-3ac6-4c71-a6fa-1f52e077e21b)
@@ -33,7 +33,7 @@ $\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$
 
 ![](https://github.com/user-attachments/assets/8ac3ddf5-63e9-42c9-bfe1-cac199bd352c)
 
-$\text{\color{#C5E7FF}{ ᯓ nightmare blunt rotation sys ᡣ𐭩 }}$ 
+$\text{\color{#C5E7FF}{ ᯓ nightmare blunt rotation sys ᯽ }}$ 
 
 $\text{\color{#C5E7FF}{⭑ host: kendyl /co-host: eliza .ᐟ}}$ 
 
