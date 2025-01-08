@@ -22,7 +22,7 @@ $\text{\color{#C5E7FF}{ they/fae }}$ ![](https://github.com/user-attachments/ass
  $\text{\color{#ADDDFC}{hamilton}}$ $\text{\color{#D7EFFF}{✿}}$  $\text{\color{#ADDDFC}{six}}$ $\text{\color{#D7EFFF}{❀}}$  $\text{\color{#ADDDFC}{epic}}$ $\text{\color{#D7EFFF}{✿}}$ $\text{\color{#ADDDFC}{npmd}}$
 
 ![](https://github.com/user-attachments/assets/493568dd-f379-40d4-957d-4d58ee87c3c2)
-$\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$ $\text{\color{#D7EFFF}{ ☆ }}$ $\text{\color{#ADDDFC}{ tiktok: }}$ $\text{\color{#D7EFFF}{ bvrningletters }}$![](https://github.com/user-attachments/assets/3763eba6-3ac6-4c71-a6fa-1f52e077e21b)
+$\text{\color{#ADDDFC}{ pinterest: }}$ $\text{\color{#D7EFFF}{ bvrningletters}}$ $\text{\color{#D7EFFF}{ ☆ }}$ $\text{\color{#ADDDFC}{ pronouns.cc: }}$ $\text{\color{#D7EFFF}{ bvrningletters }}$![](https://github.com/user-attachments/assets/3763eba6-3ac6-4c71-a6fa-1f52e077e21b)
 
 
 ![](https://github.com/user-attachments/assets/0578f54d-21b0-49e5-a8db-eb1423d8bf81)
